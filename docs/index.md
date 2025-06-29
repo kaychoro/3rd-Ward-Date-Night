@@ -10,3 +10,5 @@
 | Thursday, August 7 | Smoothie Creations w/ Group Games  | 7-8:30pm    | Meet at the church                                  |
 |       August 15-16 | Ward Campout - Not a Date          | After 4pm   | Badger Creek Campground, Tetonia                    |
 |  Friday, August 22 | Ax Throwing & Bonfire              | 7:30-9:30pm |                                                     |
+
+Looking for a date? - Add yourself to the list of people looking for a date [here](https://docs.google.com/spreadsheets/d/1ejb8PIBNJB9w0nGALb3x0f0VkHCh25d-yF8GJUUSq_4/edit?usp=sharing)
