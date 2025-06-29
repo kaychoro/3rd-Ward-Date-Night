@@ -1,5 +1,3 @@
-# 3rd Ward Date Nights
-
 **Check Back Here for all the details**
 
 | Date               | Activity                  | Info / Details                   |
