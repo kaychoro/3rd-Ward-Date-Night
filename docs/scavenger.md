@@ -7,4 +7,4 @@
 
 ### Begins at Runnin 4 Sweets
 
-### 
+### Ends at Southwest corner of Smith Park by the tennis courts - Look for Bishop & Sister Kay
