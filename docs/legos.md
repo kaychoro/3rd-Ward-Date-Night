@@ -1,6 +1,7 @@
 ## LEGOs, Frostys, & Fries - Thursday, July 8
 
 ### Timeline:
+
 | Time        | Activity                                                                                                                                          |
 |-------------|---------------------------------------------------------------------------------------------------------------------------------------------------|
 | **Before the date** | Fill out **[this RSVP form](https://forms.gle/vwXrmy4bks4pqCrT6)** to "order" your Frosty & Fries (we'll grab these just before the date) |
@@ -10,6 +11,7 @@
 | 8:15-8:30pm | Awards                                                                                                                                            |
 
 ### Scripture Story Scene Scoring
+
 | Category             |                       |   Points |
 |:---------------------|:----------------------|---------:|
 | Degree of difficulty | Book of Mormon        |        1 |
