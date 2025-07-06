@@ -1,7 +1,7 @@
 ## LEGOs, Frostys, & Fries - Thursday, July 8
 
 ### Timeline:
-* Before the date fill out **[this form]()** to "order" your Frosty or Fries (we'll grab these just before the date)
+* Before the date fill out **[this form](https://forms.gle/vwXrmy4bks4pqCrT6)** to "order" your Frosty or Fries (we'll grab these just before the date)
 * 7-7:15 Meet at the church, room 103-104
 
 ### Where:
