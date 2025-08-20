@@ -9,6 +9,6 @@
 |   Tuesday, July 29   | BYU-I Ropes Course & Frozen Treats | 5-7:00pm    | ***[RSVP HERE](https://forms.gle/xY4wHdVM1wnvscYr6)*** to fill out the required waiver                |
 | Thursday, August 7   | Smoothie Creations w/ Group Games  | 7-8:30pm    | Meet at the church                                                                                    |
 |       August 15-16   | Ward Campout - Not a Date          | After 4pm   | Badger Creek Campground, Tetonia                                                                      |
-|  Saturday, August 23 | Ax Throwing & Bonfire              | 7:30-9:30pm | Bishop's property in Lyman                                                                            |
+|  Saturday, August 23 | Ax Throwing & Bonfire              | 7:30-9:30pm | Bishop's property in Lyman <br />[1470 Highfield Ln](https://maps.app.goo.gl/AZXBSRamJZdsUbSg8)       |
 
 **_Looking for a date?_** Add or remove yourself on the list of people looking for a date [here](https://docs.google.com/spreadsheets/d/1ejb8PIBNJB9w0nGALb3x0f0VkHCh25d-yF8GJUUSq_4/edit?usp=sharing)
